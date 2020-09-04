@@ -22,10 +22,10 @@ Total: £329 (R$ 2301)
 ---
 
 #### Nintendo Switch Grey (£291) [R$ 2036]:
-Amazon.co.uk/dp/B07W6HNZNW
+https://www.Amazon.co.uk/dp/B07W6HNZNW
 
 #### Dead by Daylight for Switch (£25) [R$ 175]:
-Amazon.co.uk/dp/B07YWQ5QN2
+https://www.Amazon.co.uk/dp/B07YWQ5QN2
 
 Total: £316 (R$ 2213)
 -
