@@ -16,7 +16,7 @@ https://www.Amazon.co.uk/dp/B00XZ10NX0
 #### Hand Made Aleppo Soap - Olive & 40% Laurel Oil 200mg (£12) [R$ 84]:
 https://www.Amazon.co.uk/dp/B06X8YXH36
 
-Total: £329 (R$ 2301)
+Total: £329 (R$ 2306)
 -
 
 ---
