@@ -27,5 +27,5 @@ https://www.Amazon.co.uk/dp/B07W6HNZNW
 #### Dead by Daylight for Switch (£25) [R$ 175]:
 https://www.Amazon.co.uk/dp/B07YWQ5QN2
 
-Total: £316 (R$ 2213)
+Total: £316 (R$ 2215)
 -
